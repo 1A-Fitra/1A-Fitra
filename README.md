@@ -28,5 +28,6 @@ Selamat datang di profil GitHub saya! Nama saya Fitra Rifki Firdaus. Saya adalah
 Untuk kolaborasi atau pertanyaan, jangan ragu untuk menghubungi saya melalui:
 
 - Email: [fitra.rifki.tif423@polban.ac.id](mailto:fitra.rifki.tif423@polban.ac.id)
+- Instagram: https://www.instagram.com/fitraxr_/
 
 Terima kasih telah mengunjungi profil saya. Mari kita kolaborasi untuk membuat perubahan yang berarti melalui kekuatan teknologi!
